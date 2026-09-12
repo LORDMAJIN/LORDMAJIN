@@ -1,19 +1,13 @@
+<p align="center"><img width="540" height="303" alt="_" src="https://github.com/user-attachments/assets/0a9d24b7-9b06-4cad-bd44-7630ed7528dc" />
+  
+# <p align="center"> $$ \color{red}{\text{ULTIMATE LIFEFORM}} $$
 
-<img width="2048" height="819" alt="tumblr_556dab9a10ff6b85b9e247c19d5fba42_a18bee90_2048" src="https://github.com/user-attachments/assets/f8657980-9cff-43e3-950c-13c49a7c6709" />
-
-<p align="center"><a href="https://github.com/wiIIgraham"><img width="227" height="109" alt="cooltext514331588318354" src="https://github.com/user-attachments/assets/8e6f1863-1253-4132-9e88-3fcbec7b3b2d"/></img></a><p align="center"><img width="188" height="220" alt="pony-town-Hannibal Lector , ME , iwc-dance-1-a-blinking-padded-4x" src="https://github.com/user-attachments/assets/32c2ff63-6643-498e-9281-e4e6433ba334" />
-
-
-<p align="center"><a href="https://pronouns.cc/@MEATGRlNDER"><img width="257" height="102" alt="cooltext514348797421517" src="https://github.com/user-attachments/assets/c76139a0-95fa-427d-b4d0-e3150e69edd6" /><a href="https://meatgrinder.atabook.org/"><img width="268" height="101" alt="cooltext514331653410525" src="https://github.com/user-attachments/assets/251ce7fb-2bc5-495d-ab4f-033f7ce0e061"/></img></a>
-
-
+<p align="center"><a href="https://pronouns.cc/@MEATGRlNDER"><img width="173" height="60" alt="tumblr_798ad54d374b6129df5396cdb6222e8e_ecbe3a95_250" src="https://github.com/user-attachments/assets/5de075cb-684d-4917-929e-8612216b82a5" />
+<a href="https://meatgrinder.atabook.org/"><img width="173" height="60" alt="tumblr_c2400d1e11c414fb3a6023a07380e1f4_e8f9b481_250" src="https://github.com/user-attachments/assets/e85597c8-05e7-4054-9489-7adaaf812f31" />
+<img width="173" height="60" alt="tumblr_fff562e94f1f367f33492e7dc5189a66_d45a8d0f_250" src="https://github.com/user-attachments/assets/728210e5-82e9-426a-b487-4f2d82ff3b76" />
 
 
 
 
-
-<p align="center"><img width="2048" height="819" alt="tumblr_2d7bc31721e004d812840a842ee1d6b2_62153bb9_2048" src="https://github.com/user-attachments/assets/99bc7e2a-2f16-4702-90e3-4fc4f626e034" />
-
-
-
-
+<p align="center">
+<img width="133" height="133" alt="tumblr_b42bf1b23faa7a820615dd247df9a9cd_bd2cb12e_250" src="https://github.com/user-attachments/assets/2594ff81-97cf-42c1-95e5-ad63f1dd5f54" />
