@@ -1,13 +1,6 @@
-<p align="center"><img width="540" height="303" alt="_" src="https://github.com/user-attachments/assets/0a9d24b7-9b06-4cad-bd44-7630ed7528dc" />
-  
-# <p align="center"> $$ \color{red}{\text{ULTIMATE LIFEFORM}} $$
+<p align="center"><img width="1000" height="1000" alt="tumblr_11594563150850717ee33c00565ae93c_5cbce171_1280" src="https://github.com/user-attachments/assets/c9031552-fca2-4ee8-964b-76e93291f477" />
 
-<p align="center"><a href="https://pronouns.cc/@MEATGRlNDER"><img width="173" height="60" alt="tumblr_798ad54d374b6129df5396cdb6222e8e_ecbe3a95_250" src="https://github.com/user-attachments/assets/5de075cb-684d-4917-929e-8612216b82a5" />
-<a href="https://meatgrinder.atabook.org/"><img width="173" height="60" alt="tumblr_c2400d1e11c414fb3a6023a07380e1f4_e8f9b481_250" src="https://github.com/user-attachments/assets/e85597c8-05e7-4054-9489-7adaaf812f31" />
-<img width="173" height="60" alt="tumblr_fff562e94f1f367f33492e7dc5189a66_d45a8d0f_250" src="https://github.com/user-attachments/assets/728210e5-82e9-426a-b487-4f2d82ff3b76" />
+# <p align="center"> $$ \color{red}{\text{" We will be together soon . "}} $$
 
-
-
-
-<p align="center">
-<img width="133" height="133" alt="tumblr_b42bf1b23faa7a820615dd247df9a9cd_bd2cb12e_250" src="https://github.com/user-attachments/assets/2594ff81-97cf-42c1-95e5-ad63f1dd5f54" />
+<p align="center"><img width="396" height="224" alt="tumblr_468034a77a339d1f5091fae0ed9a307b_9fa5b0dc_400" src="https://github.com/user-attachments/assets/f54a2735-d6ca-4237-93ff-4b5c70111edb" />
+<img width="370" height="215" alt="tumblr_0e60a8097d33b720fe9ec23d55e06d9f_a87b2bff_400" src="https://github.com/user-attachments/assets/7a58210d-4d95-46e5-8634-73438ce5b2a7" />
