@@ -13,3 +13,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kl4ukw6n7chi3bahgm3enwbtda&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=1e10da&bar_color_cover=false">
   </a>
 </p>
+
+
+<p align="center">MAJIN FICTIONKIN AND 2011X YUME !! I AM VERY OPEN FOR BOTH , AS ALL CAN INTERACT !
