@@ -1,6 +1,15 @@
-<p align="center"><img width="1000" height="1000" alt="tumblr_11594563150850717ee33c00565ae93c_5cbce171_1280" src="https://github.com/user-attachments/assets/c9031552-fca2-4ee8-964b-76e93291f477" />
+<p align="center"><img width="99" height="56" alt="tumblr_61ffef2385b9903ed62f28a4ec256213_66ecfe3c_100" src="https://github.com/user-attachments/assets/cfbe9d99-454b-4aee-a70e-18becae08f96" />
+<img width="99" height="56" alt="tumblr_8af6cefbc48e26e19530554c18030950_166eaed3_100" src="https://github.com/user-attachments/assets/88459a1f-383e-48e7-8681-a6985e50e3ef" />
+<img width="99" height="56" alt="tumblr_14c7356c51620d16bc9e1ede7aafd556_042f0342_100" src="https://github.com/user-attachments/assets/66c62f4b-56e4-4c6b-8551-bd214ef9e67d" />
+<img width="99" height="56" alt="tumblr_e4d87a6eeee4457a582363e45bb19d6d_292318d4_100" src="https://github.com/user-attachments/assets/ff1eda1a-1a16-4f4a-81c7-cd31c8fc28c5" />
+<img width="99" height="56" alt="tumblr_0672ea8a7780d36786718c82ead7dfdc_9529e307_100" src="https://github.com/user-attachments/assets/a999baf2-110d-4501-87d0-e97a69627c40" />
+<img width="99" height="56" alt="tumblr_689bfe432a27078ec150c2f0146ceaa4_53deeae1_100" src="https://github.com/user-attachments/assets/2dc28f23-a74d-4219-beca-0fac167268bb" />
+<img width="99" height="56" alt="tumblr_f691ccb52ef857f69c64bc7ea4e51fe5_2501342d_100" src="https://github.com/user-attachments/assets/043d7437-01b9-4789-a0c8-06124909039b" />
+<img width="99" height="56" alt="tumblr_670f8255fa2dd44be2222ccc6a4b7ab4_13fa6eab_100" src="https://github.com/user-attachments/assets/938f0243-d8f1-4907-8070-1d55dc0bb662" />
 
-# <p align="center"> $$ \color{red}{\text{" We will be together soon . "}} $$
 
-<p align="center"><img width="396" height="224" alt="tumblr_468034a77a339d1f5091fae0ed9a307b_9fa5b0dc_400" src="https://github.com/user-attachments/assets/f54a2735-d6ca-4237-93ff-4b5c70111edb" />
-<img width="370" height="215" alt="tumblr_0e60a8097d33b720fe9ec23d55e06d9f_a87b2bff_400" src="https://github.com/user-attachments/assets/7a58210d-4d95-46e5-8634-73438ce5b2a7" />
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31kl4ukw6n7chi3bahgm3enwbtda&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kl4ukw6n7chi3bahgm3enwbtda&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=1e10da&bar_color_cover=false">
+  </a>
+</p>
