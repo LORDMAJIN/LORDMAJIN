@@ -1,11 +1,14 @@
-<p align="center"><img width="99" height="56" alt="tumblr_61ffef2385b9903ed62f28a4ec256213_66ecfe3c_100" src="https://github.com/user-attachments/assets/cfbe9d99-454b-4aee-a70e-18becae08f96" />
-<img width="99" height="56" alt="tumblr_8af6cefbc48e26e19530554c18030950_166eaed3_100" src="https://github.com/user-attachments/assets/88459a1f-383e-48e7-8681-a6985e50e3ef" />
-<img width="99" height="56" alt="tumblr_14c7356c51620d16bc9e1ede7aafd556_042f0342_100" src="https://github.com/user-attachments/assets/66c62f4b-56e4-4c6b-8551-bd214ef9e67d" />
-<img width="99" height="56" alt="tumblr_e4d87a6eeee4457a582363e45bb19d6d_292318d4_100" src="https://github.com/user-attachments/assets/ff1eda1a-1a16-4f4a-81c7-cd31c8fc28c5" />
-<img width="99" height="56" alt="tumblr_0672ea8a7780d36786718c82ead7dfdc_9529e307_100" src="https://github.com/user-attachments/assets/a999baf2-110d-4501-87d0-e97a69627c40" />
-<img width="99" height="56" alt="tumblr_689bfe432a27078ec150c2f0146ceaa4_53deeae1_100" src="https://github.com/user-attachments/assets/2dc28f23-a74d-4219-beca-0fac167268bb" />
-<img width="99" height="56" alt="tumblr_f691ccb52ef857f69c64bc7ea4e51fe5_2501342d_100" src="https://github.com/user-attachments/assets/043d7437-01b9-4789-a0c8-06124909039b" />
-<img width="99" height="56" alt="tumblr_670f8255fa2dd44be2222ccc6a4b7ab4_13fa6eab_100" src="https://github.com/user-attachments/assets/938f0243-d8f1-4907-8070-1d55dc0bb662" />
+<p align="center"><img width="250" height="192" alt="tumblr_9d9afb2d3bb0fec3abb7b6ed8ae67bef_236c3bf7_250" src="https://github.com/user-attachments/assets/e0247207-c330-41e9-bb84-a666355718ea" />
+
+<p align="center"><img width="532" height="131" alt="tumblr_327ebd9e28aecbdb723df07e210e2ae7_a2245e08_540" src="https://github.com/user-attachments/assets/d38223a6-de43-4762-b10f-4f2e20aacc2c" />
+
+
+<p align="center"><img width="194" height="114" alt="tumblr_5c14514eb4b5629c033c04c98489db87_04e1308f_250" src="https://github.com/user-attachments/assets/5f03ac86-0f89-45d5-8a42-fe2e69ec55ec" />
+<img width="194" height="114" alt="tumblr_9f25a9f1d752d40a45ceaebd964d41d3_547a3f56_250" src="https://github.com/user-attachments/assets/2ff9e905-a06d-4b96-9b6a-6f7b443a7c01" />
+<img width="194" height="114" alt="tumblr_02fa01733b65e3e123a679678d2448e7_95094bd0_250" src="https://github.com/user-attachments/assets/831e6a12-f788-4380-ad71-5d03e952970e" />
+<img width="194" height="114" alt="tumblr_89c7b7b7ca6da3670045c789d4519f46_090adaab_250" src="https://github.com/user-attachments/assets/77ed3dea-5d1c-4d6e-b564-553879751d58" />
+<img width="194" height="114" alt="tumblr_cad617f41a119d0db9b50b312f7b6161_207ba100_250" src="https://github.com/user-attachments/assets/5f76340c-3f42-4274-9d34-0adf2d6477ad" />
+<img width="194" height="114" alt="tumblr_e06936a2e94864b34ca49d417184783f_aa0abc7c_250" src="https://github.com/user-attachments/assets/7679942a-33b2-4e07-9b3a-4eb0d82e2d22" />
 
 
 <p align="center">
@@ -15,6 +18,6 @@
 </p>
 
 
-<p align="center">MEPHILES FICTIONKIN !! I AM VERY OPEN , AS ALL CAN INTERACT !
+<p align="center"> I AM VERY OPEN , AS ALL CAN INTERACT !
 CHRONIC YAPPER AND SONIC THE HEDGEHOG NERD !!! I LOVE YAPPING !!
 IF I FOLLOW YOU IT MEANS I FIND YOU COOL !!!!!!
