@@ -19,8 +19,3 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kl4ukw6n7chi3bahgm3enwbtda&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=1e10da&bar_color_cover=false">
   </a>
 </p>
-
-
-<p align="center"> I AM VERY OPEN , AS ALL CAN INTERACT !
-CHRONIC YAPPER AND SONIC THE HEDGEHOG NERD !!! I LOVE YAPPING !!
-IF I FOLLOW YOU IT MEANS I FIND YOU COOL !!!!!!
